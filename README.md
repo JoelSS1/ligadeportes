@@ -1,1 +1,2 @@
-![820shots_so](https://github.com/JoelSS1/ligadeportes/assets/113159584/86ea74c1-30ff-4e08-bf11-13bbbb57c411)![820shots_so](https://github.com/JoelSS1/ligadeportes/assets/113159584/92f74e53-d0b9-4418-8706-8756a51b00eb)
+![Uploading 820shots_so.png…]()
+![842shots_so](https://github.com/JoelSS1/ligadeportes/assets/113159584/4fd2faef-9fb7-456c-a19b-955c7161330b)
